@@ -1,4 +1,3 @@
-## lakhi airconditioners BC
+lakhi airconditioners BC
 
-
-## © 2025 lakhiaiconditioners
+© 2025 lakhiaiconditioners
